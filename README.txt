@@ -1,2 +1,0 @@
-Orestes Franco
-Chicago Cubs
